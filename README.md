@@ -25,9 +25,9 @@
 
 ### MY SOCIAL MEDIA
 * [<img alt="Usmoxan's Github" align="left" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/github.svg" /> <b>Github</b>](https://github.com/Usmoxan) FOLLOW MY GITHUB<br />
-* [<img alt="Usmoxan's Whatsapp" align="left" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/whatsapp.svg" /> <b>WhatsApp</b>](https://wa.me/998903665691) WHATSAPP<br />
+* [<img alt="Usmoxan's Whatsapp" align="left" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/whatsapp.svg" /> <b>WhatsApp</b>](https://wa.me/998916931533) WHATSAPP<br />
 
 
-* [<img alt="Usmoxan's Instagram" align="left" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" /> <b>Instagram</b>](https://Instagram.com/usmoxan) INSTAGRAM<br />
+* [<img alt="Usmoxan's Instagram" align="left" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" /> <b>Instagram</b>](https://Instagram.com/usmoxan.me) INSTAGRAM<br />
 
 
